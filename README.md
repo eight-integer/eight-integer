@@ -1,1 +1,2 @@
-![2669888_a03b2](https://github.com/user-attachments/assets/8c408fa8-2af4-4a79-b69d-6e9f83580492)
+![114 sin título_20250210120600](https://github.com/user-attachments/assets/48b7a97d-ab72-4492-8ed7-7163b3c22617)
+
